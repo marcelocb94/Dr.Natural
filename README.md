@@ -18,3 +18,8 @@ Cuidados e Contraindicações: Alertas sobre interações, restrições para ges
 Embasamento Científico: Citação direta de monografias, revisões sistemáticas ou órgãos de saúde pública que corroboram a recomendação.
 
 Utilize de Base Todo o material que coloquei a disposição
+
+
+acesse voce tambem
+
+https://notebook.google.com/notebook/1d4d6a24-ae50-4f1a-9e85-ac7eabcaf92c
